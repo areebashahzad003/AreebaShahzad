@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **areebashahzad282@gmail.com**
 
-- 📄 Know about my experiences [https://www.mediafire.com/file/90c8ezgdvm7km9u/Profile+(1).pdf/file](https://www.mediafire.com/file/90c8ezgdvm7km9u/Profile+(1).pdf/file)
+- 📄 Know about my experiences:
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
